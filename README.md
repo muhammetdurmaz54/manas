@@ -1,0 +1,2 @@
+# manas
+mana
